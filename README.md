@@ -7,5 +7,9 @@ Do you know that W3Sholls has 60 milion Users and 3 bilion page views every year
 Some Design Ideas for my site !
 CodePen >> https://codepen.io/your-work?search_term=null
 github >>  https://github.com/pricing and The Home Page of Github !
+Fireship >> fireship.io their layout is awasome
+
+
+
 
 You Know, Ideas Are Cheap, Execution is Everything!!!
